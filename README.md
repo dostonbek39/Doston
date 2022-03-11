@@ -1,0 +1,2 @@
+# Doston
+texnikalar olami
